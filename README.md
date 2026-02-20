@@ -26,5 +26,10 @@ Gmail: ```otavinhoopereira@gmail.com```
 -responsavel 
 -fácil adaptação profissional 
 
+### colaboração 
+-Restaurante shell 
+-Restaurante rudnik 
+-Hart Material de construção 
+
 
  

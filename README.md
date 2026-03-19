@@ -13,7 +13,7 @@ Gmail: ```otavinhoopereira@gmail.com```
 
  ### experiências...
     
- auxiliar de cozinha, caixa, manuseio de cédulas, auxiliar de confeiteiro, organização de estoque, reabastecimento de mercadorias, conferência de estoque, conferência de mercadoriasd  
+   
 
  ### Habilidades..
 
